@@ -1,2 +1,2 @@
 # My-IQ-test
-IQ test 2016 &amp; 2020
+IQ test 2020
